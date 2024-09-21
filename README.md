@@ -12,5 +12,5 @@ I'm going to share with you ... 😎
     <br/>
 -   My CV
 
-Currently, I'm building my own blog! ⚒️ <br/>
+Currently, building my own blog! ⚒️ <br/>
 Can't wait to share with you all !😙
